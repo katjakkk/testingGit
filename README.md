@@ -3,7 +3,7 @@ Learning git remote and share with team members. I like coffee...
 
 My stomach is full and happy.
 
-Fuck jiiiii
-Ihkuu
+Im so cranky
+
 huhhuh push pull onpa kätevää
 
