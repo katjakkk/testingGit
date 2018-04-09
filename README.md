@@ -1,3 +1,2 @@
 # testingGit
-Learning git remote and share with team members
-iiioooouuuuuwwwawwawwawakläkäkällkäääääkääälääääää
+Learning git remote and share with team members. I like coffee...
