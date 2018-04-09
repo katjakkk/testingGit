@@ -10,3 +10,5 @@ huhhuh push pull onpa kätevää
 Muahaha
 
 tirsk
+
+Homo deus 
